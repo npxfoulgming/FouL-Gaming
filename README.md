@@ -1,2 +1,2 @@
-# legacyrpkorea
-This is Legacy Roleplay South-korea Wwbsite
+# FouLGaming
+My Personal Websites, Feel Free To Visit.
